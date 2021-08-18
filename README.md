@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Deekshitanambiar....an Indian student in Doha, Qatar
 - 👀 I’m interested in exploring new things and to make a purpose in life
-- 🌱 I’m currently learning humanities in 11th, I'm also learning sign language and I plan to start with Chinese again
+- 🌱 I’m currently learning humanities in 11th, I'm also learning sign language and I plan to start Chinese.
 - 📫 Reach me at 17346@bpsdoha.edu.qa!!
 Have a great day!
 
